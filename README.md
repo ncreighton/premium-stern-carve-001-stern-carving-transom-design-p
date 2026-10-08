@@ -1,0 +1,2 @@
+# premium-stern-carve-001-stern-carving-transom-design-p
+Tired of guessing the curves and symmetry on your transom carving? Stop wasting wood and start with a blueprint that keeps your design on track.  This Notion template transforms your carving workflow from chaotic to structured, giving you a dedicated space to plan every chisel stroke. With built-in grids, dimension calculators, and progress logs, y
